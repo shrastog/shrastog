@@ -31,4 +31,4 @@ Backend Engineer with 14+ years of experience designing and architecting enterpr
 
 ---
 
-📫 **Connect with me:** [LinkedIn](https://www.linkedin.com/in/shubhi-rastogi/) | **Email:** shubhi.rastogi8922@gmail.com
+📫 **Connect with me:** [LinkedIn](https://www.linkedin.com/in/shubhi-rastogi-98137117/) | **Email:** shubhi.rastogi8922@gmail.com
